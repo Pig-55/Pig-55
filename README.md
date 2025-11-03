@@ -1,4 +1,4 @@
-## Yo, I'm Pig 55
+## Yo, I'm Pig 55 👋
 
 <br>
 
